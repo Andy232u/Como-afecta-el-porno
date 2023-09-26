@@ -1,2 +1,2 @@
-# Comoafectaelporno
-Pagina para informarte sobre los efectos del porno en los jovenes
+# Como-afecta-el-porno
+Pagina-para-informarte-sobre-los-efectosd-el-porno-en-los-jovenes
